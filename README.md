@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Minty
+- 👀 I’m interested in Java
+- 🌱 I’m currently learning Computer Science
+- 📫 How to reach me Twitter, Instagram, Tiktok, Pinterest, and more. 
